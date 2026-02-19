@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, my name is Rovin Vinith D’Souza. I am currently pursuing my Master of Computer Applications (MCA) to enhance my career opportunities and achieve personal growth. I have completed my Bachelor of Computer Applications (BCA), which has provided me with a strong foundation in computer science.<br><br>Apart from academics, I am passionate about sports, especially football and swimming. I regularly go to the gym, as I believe that maintaining physical fitness is essential for overall well-being. I consider myself a health-conscious, disciplined, and motivated individual who is always eager to learn and improve.<br><br>
+Hello, my name is Rovin Vinith D’Souza. I am currently pursuing my Master of Computer Applications (MCA) to enhance my career opportunities and achieve personal growth. I have completed my Bachelor of Computer Applications (BCA), which has provided me with a strong foundation in computer science.<br><br>
 
 
 ## 🌐 Socials:
